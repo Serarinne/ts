@@ -1,0 +1,1 @@
+https://storage.waifuwall.com
